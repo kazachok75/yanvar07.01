@@ -1,1 +1,1 @@
-# yanvar07.01 Zmina nazvy
+# yanvar.ok
